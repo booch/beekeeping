@@ -6,10 +6,39 @@ This is my journal of my beekeeping hobby.
 
 ### Next
 
-* Feed sugar water
-* Release new queen
-* Move old hive further behind the garage
-* Add medium frames
+* Make more frames, add to original hive
+
+
+### 2018-06-17
+
+* New Saskatraz hive
+    * Honey-bound
+    * Had 1 deep and 1 medium
+    * Lots of bees
+        * Didn't inspect too much, as everything looked good
+    * Lots of beetles came out from the bottom box when I moved the top box over
+        * Killed 14
+        * Didn't open far enough to get more
+    * Added medium super with wax foundation
+    * Added new feeder with about a quart of 1:1
+* Original hive
+    * Lots of bees
+    * Opened hive, found **lots** of ants and ant larvae on top of outer cover
+        * And under the cover
+    * Had 1 deep and 1 medium, plus lots of burr comb 
+    * Killed 1 beetle
+    * Moved further behind the garage (about 4 feet)
+        * Also moved it next to the fence instead of next to the garage
+        * Had to flip around the stand
+    * Added medium super with wax foundation
+    * Added new feeder with about a quart of 1:1
+* Got stung 2 times
+    * Through my jeans, in my thigh
+    * Bees got mad when their large burr comb fell over
+        * It was where I had not put a frame
+    * Ran inside for a half hour to let them calm down
+        * They were pretty much calmed down by then
+            * Except a few that followed me into the garage and got in my face
 
 
 ### 2018-04-26
