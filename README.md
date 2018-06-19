@@ -9,6 +9,24 @@ This is my journal of my beekeeping hobby.
 * Make more frames, add to original hive
 
 
+### 2018-06-18
+
+* Large clump of bees is on corner of the garage
+    * I suspect the queen is in the middle of it
+        * I suspect she flew there when I had the hive open
+    * Tried to grab the cluster to put it back in the hive
+    * Tried to brush off the bees
+    * Everything I tried just made the bees angry
+        * They attacked me several times
+            * Smelled like paint when they started attacking
+    * Still a small cluster on the garage
+        * Worried the queen is up under the siding
+        * Worried they will start building comb there
+        * Will ask for help Wednesday if they're still there
+* Got stung 2 times
+    * Through my jeans again
+
+
 ### 2018-06-17
 
 * New Saskatraz hive
